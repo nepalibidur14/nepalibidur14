@@ -1,8 +1,9 @@
 - 👋 Hi, I’m @nepalibidur14
 - 👀 I’m interested in everything new.
 - 🌱 I’m currently learning everything on my reach.
-- Let's have some coffee and talk about technology.
+- 👍 Let's have some coffee and talk about technology.
 - 💞️ I’m looking to collaborate on anything.
+-  Let's start from 🛴 to ✈🛸.
 - 📫 You can reach me on nepalibidur14@gmail.com
 
 <!---
